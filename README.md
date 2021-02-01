@@ -2,5 +2,7 @@
 Education Domain
 Website Link
 https://ypj.4fd.myftpupload.com/
-Video Link
+Video Drive Link
+https://drive.google.com/file/d/14D-cJYYKiUffUxNLCGPIEJecX7uOhf44/view?usp=sharing
+
 
